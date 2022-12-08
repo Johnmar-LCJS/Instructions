@@ -7,8 +7,6 @@ Please, follow the listed instructions accordingly.
 - And then when you are done, wrap the **box** with a **red bow**
 > **Note:** The **amount** of cash is up to you, though I would appreciate if you could bump it to 500 pesos or higher.
 
->  <span style="font-size:0.1rem;">or you could buy me a Cirno fumo</span>
-
 
 ## Introspective
 
