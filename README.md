@@ -1,10 +1,10 @@
 # Instructions
 Please, follow the listed instructions accordingly.
 
-- Put the **cash** inside of a **brown envelope**
-- Then put the **brown envelope** inside a **box**
-- Then put that **box** inside **another box**
-- And then when you are done, wrap the **box** with a **red bow**
+- Put **cash** inside of a **brown envelope**.
+- Then put the **brown envelope** inside a **box**.
+- Then put that **box** inside **another box**.
+- And then when you are done, wrap the **box** along with a **red bow**.
 > **Note:** The **amount** of cash is up to you, though I would appreciate if you could bump it to 500 pesos or higher.
 
 
